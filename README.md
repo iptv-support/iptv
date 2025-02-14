@@ -7,7 +7,6 @@ IPTV offers users a modern television viewing experience with affordable prices,
 <a href="https://t.me/iptvhd34" title="IPTV TELEGRAM">
     <img src="https://static.techinside.com/uploads/2023/05/iptv-nedir-nasil-kullanilir154246_0.jpg" alt="IPTV TELEGRAM" style="max-width: 48%; border: 2px solid #ddd; border-radius: 10px; margin-right: 1%;">
 
-Translated with DeepL.com (free version)
 
 24 Hour Free Trial Period:
 Many IPTV providers allow users to trial their services. Free trial periods provide an opportunity for users to evaluate the quality of the service and the variety of content.
